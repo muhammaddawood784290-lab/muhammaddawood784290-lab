@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm working on innovative websites.<br>I'm looking to collaborate with new idea makers.<br>I'm looking to help in with marketing and dev side.<br>I'm currently learning advance software development.<br>Ask me about anything.<br>
+I'm Muhammad Dawood Owner and CEO of Permetheon.<br>Me and My Team got best option's.<br>Ask me about anything.<br>
 
 
 ## 🌐 Socials:
